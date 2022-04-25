@@ -1,4 +1,4 @@
-### Hi there 👋
+### Be Water, My Friend. Empty your mind. Be formless, shapeless, like water. -- Bruce Lee 😄 Hey there! 👋
 
 <!--
 **tmasur/tmasur** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
